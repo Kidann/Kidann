@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Kidan
-- 👀 I’m interested in development, anime/manga and Youtube!
-- 🌱 I’m currently learning to Draw!
-- 📫 How to reach me | Discord - Kidan | キダン#4022
+- 👀 I’m interested in development, and boxing and I have been a gym veteran for over 1 and a half years, "BIKE LIFE"--!
+- 🌱 I’m currently I make plans and post them here !
+- 📫 How to reach me | Discord : !' Kidan#7701
