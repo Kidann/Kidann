@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Kidan
-- 🌱 I’m currently I make plans and post them here !
+- 🌱 I "currently" make plans and post them here !
 - 📫 How to reach me | Discord : Kidann
